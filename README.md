@@ -5,7 +5,7 @@ My heart is buried in Venice... <img src="https://kingcrimson.crd.co/assets/imag
         <a data-target="animated-image.replacedLink" class="AnimatedImagePlayer-images" href="https://kingcrimson.crd.co/assets/images/gallery11/2fbbf459.jpg?v=d93b4021" target="_blank">
  <hr>
   <ul dir="auto">
-  <li> Kins of Caesar Zeppeli, Risotto Nero, Trish Una, Noriaki Kakyoin, and  Muzan Kibutsuji DNI. </li>
+  <li> DNI if you Kin.. Caesar Zeppeli, Risotto Nero, Trish Una, Noriaki Kakyoin, and  Muzan Kibutsuji  </li>
     <li> DNI Anyone under 17, I am an adult, I don't see a reason for me to befriend children. </li>
     <li> I don't care about any of your petty drama, go find someone else who does. </li>
     <li> I don't mind people sitting with me, keep in mind I'm usually off-tab, so I may not respond. </li>
