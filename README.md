@@ -10,22 +10,3 @@ My heart is buried in Venice... <img src="https://kingcrimson.crd.co/assets/imag
     <li> I don't care about any of your petty drama, go find someone else who does. </li>
     <li> I don't mind people sitting with me, keep in mind I'm usually off-tab, so I may not respond. </li>
   </ul>
-  </div>
-<div align="center" dir="auto">
-    <span aria-label="" class="m-1">DNI if you PDA/LoveMail Joseph Joestar</span>
-    <span class="dropdown-caret"></span>
-  </summary>
-
-  <img src="https://media.tenor.com/51wy_xy1gqsAAAAC/jojo-and-ceasar-joseph-joestar.gif" data-canonical-src="https://media.tenor.com/51wy_xy1gqsAAAAC/jojo-and-ceasar-joseph-joestar.gif">
-
-  </img>
-</details>
-          
-</div>
-<div align="center" dir="auto"> <sub> BAAAA!!! no wonder people are homophobic, this is scary AF!!! 
-<br>
-PLEASE DO NOT BE AFRAID TO GO UP TO ME I DONT BITE (yes i do but thats besides the point) I LIKE MAKING FRIENDS!!!! ESP IF WE HAVE INTERESTS IN COMMON  </sub> </div>
-
-
-</article>
-  </div>
