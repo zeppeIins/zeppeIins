@@ -9,3 +9,6 @@ My heart is buried in Venice... <img src="https://kingcrimson.crd.co/assets/imag
 <li> TT/TD, DID & Psychosis faking weirdos dni. I won't encourage any of that.  </li>
 <li> DNI if you PDA/LoveMail Joseph Joestar. I'm a bit of a gatekeeper :3 </li>
 <li> I am usually AFK/Off-Tab. Whispers are best to interact. </li>
+ㅤ
+
+<img src="https://64.media.tumblr.com/262818e02d05f175d2bb41afdfda1845/2ff157bba09d29e3-0c/s100x200/919c88fa3ee0360f45b4463d95e6c2dafddd164f.gifv"> <img src="https://64.media.tumblr.com/1b629a653ac2a6e2d747f0841d4af825/2ff157bba09d29e3-3e/s100x200/a55c53f05abb4783883027a550d3f641b3ed277a.gifv"> <img src="https://64.media.tumblr.com/efef7e2e325f251df9a62289b409513f/2ff157bba09d29e3-03/s100x200/df2755fbd15708ca21cf1ef5a2b9a4e031224567.gifv">
