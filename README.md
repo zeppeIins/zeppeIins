@@ -7,4 +7,4 @@ My heart is buried in Venice... <img src="https://kingcrimson.crd.co/assets/imag
   <li> DNI if you Kin any of my High Kins. They are listed on my Rentry. </li>
     <li> Anyone under 18 DNI. I am an adult, I don't wish to speak to children. </li>
     <li> TT/TD, DID & Psychosis faking weirdos dni. I won't encourage any of that.  </li>
-    <li> I don't mind people sitting with me, keep in mind I'm usually off-tab, so I may not respond. </li>
+    <li> DNI if you PDA/LoveMail Joseph Joestar. I'm a bit of a gatekeeper :3 </li>
